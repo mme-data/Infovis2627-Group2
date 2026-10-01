@@ -1,1 +1,1 @@
-# Infovis2627-GroupX
+# Infovis2627-Group2
